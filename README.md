@@ -3,8 +3,8 @@ boredtropolis
 
 ...where dreams... come true.........................................
 
-( *❛‿❛)/˚°◦:octopus:!!!
+( \*❛‿❛)/˚°◦:octopus:!!!
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;!!!:octopus:◦°˚\(❛‿❛* )
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;!!!:octopus:◦°˚\\(❛‿❛\* )
 
-( *❛‿❛)/˚°◦:octopus:!!! :star: !!!:octopus:◦°˚\(❛‿❛* )
+( \*❛‿❛)/˚°◦:octopus:!!! :star: !!!:octopus:◦°˚\\(❛‿❛\* )

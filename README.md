@@ -8,3 +8,5 @@ boredtropolis
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;!!!:octopus:◦°˚\\(❛‿❛\* )
 
 ( \*❛‿❛)/˚°◦:octopus:!!! :star: !!!:octopus:◦°˚\\(❛‿❛\* )
+
+☆.。.：*・゜☆ DOMO ARIGATO MR ROBOTO ☆.。.：*・゜☆

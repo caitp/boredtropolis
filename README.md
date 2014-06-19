@@ -10,3 +10,5 @@ boredtropolis
 ( \*❛‿❛)/˚°◦:octopus:!!! :star: !!!:octopus:◦°˚\\(❛‿❛\* )
 
 ☆.。.：*・゜☆ DOMO ARIGATO MR ROBOTO ☆.。.：*・゜☆
+
+(・_・ヾ)???

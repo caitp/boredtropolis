@@ -4,7 +4,7 @@
 
 ( ͡° ͜ʖ ͡°) ...come true.........................................
 
-( \*❛‿❛)/˚°◦:octopus:!!! מּ_מּ
+( \*❛‿❛)/˚°◦:octopus:!!! מּ_מּ
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;!!!:octopus:◦°˚\\(❛‿❛\* )
 
@@ -12,7 +12,7 @@
 
 (・_・ヾ)??? ಥ﹏ಥ ヽ(^。^)ノ
 
-┌( ಥ_ಥ)┘ (º_o)
+┌( ಥ_ಥ)┘ (º_o) ໒( ᓀ ‸ ᓂ )७
 
 ##LICENSE (ﾉ◕ヮ◕)ﾉ*:･ﾟ✧
 
